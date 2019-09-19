@@ -5,5 +5,6 @@ B1: Đọc câu đó nguyên bản tiếng anh, dịch và hiểu hết tất c�
 B2: Mở notepad++ lên viết lại theo trí nhớ câu đó (viết theo kiểu convert từ ý tưởng tiếng viết sang tiếng anh) <br>
 B3: Check so sánh với bản gốc để hiếu được cùng với ý tưởng đó, họ diễn đạt nó kiểu gì <br>
 B4: Lặp lại với các câu tiếp theo <br>
+B5: Lên grammarly check lại lần nữa cả bài cho chắc ăn
 Video tham khảo <br>
 https://www.youtube.com/watch?v=jTEATmzxdro
