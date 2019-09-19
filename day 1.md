@@ -5,4 +5,4 @@ As most of you are aware, germs, viruts and bacteria are passed on mainly throug
 Here at Happy Sandwich restaurant ,hygiene and cleanliness are our number one priority.
 This policy will be strictly enforced
 Thank you for your attention in this matter
-https://i.imgur.com/rD3LvRV.png
+<img src="https://i.imgur.com/rD3LvRV.png">
