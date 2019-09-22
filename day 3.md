@@ -30,4 +30,6 @@ While the engine is easy to replace, we want all our customers enjoy their produ
 Take good care of your All-power and it will give you many years of service <br>
 Please do not hesitate to contact me if you have any more questions <br>
 
+<img src="https://i.imgur.com/oBqve3v.png" />
+
 
