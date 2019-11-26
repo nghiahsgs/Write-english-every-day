@@ -12,3 +12,4 @@ One simple truth. we were all once children: we were not afraid of falling down,
 If you need 800 hourse of listening to make the brain familiar with English, then I believe that we to double that amoun of time, 1600 hours to speak it fluently. So if you are afaid of wrong pronounciation. and do not begin now, how can you accumulate enough time for speaking  ? So let's become and OuchMaster , just speak and fix later.
 The good news is that you don't have to pronounce perfectly in the whole 1600 hours, but you need a perfect model. Like the baby needs his parents talking as a learning model, you need an English enviroment like that (With native English speakers) Here is the problem : It's hard to do what when we are adults (It's not easy to face someone and call him "papa") So what will we do ?
 It's time to open the mystery box of "Guerulla Speaking Weapon"
+to page 36
