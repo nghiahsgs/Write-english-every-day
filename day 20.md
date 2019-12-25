@@ -30,7 +30,7 @@ Hera was very angry with Argos. She turned him into a peacock. she put his many 
 Zeus saw how much trouble he had caused Argos. HE made another plan. He turned Argos into a group of stars. He wanted Argos to remian in the sky forever. Even today, Argos's image remains there, about the site where all his problems began. We can still see him in the night sky.
 
 =========
-Unit 10: PRINCESS ROSE AND THE CREATURE
+Unit 11: PRINCESS ROSE AND THE CREATURE
 THere was once a beautiful princess named Rose. HE mother, the queen, however, was not as beautiful as the princess. The queen felt bad that she was not the most beautiful woman in the kindom anymore. She was tired of competing with her daughter. She mad a decision. She prepared a drink for the princess. After the princess drank it, she fall asleep. Then the queen took the princess to the forest. She left the princess there. It was a very serious thing to do "Either she will be killed by animals or she will get lost in the forest" the queen thought.
 
 The princess had a dream. She dreamed about a man with brown haid and brown eyes. It was the man she would wed.
