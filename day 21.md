@@ -15,4 +15,14 @@ Arthur was a responsible farmer, and Maria was a nice lady. But they were poor. 
 
 On a fall day. the lord demanded his money. Arthur asked if the lord could wait until he brought in his crops.
 
-The 
+The lord was angry. He raised his hands high and yelled "Pay me by the end of the week. If you dont, I will increase the money you have to pay. I might put you in a jail cell"
+
+So Arthur and Maria worked until there was blood on their hands. They finished four lines of corn and went to bed.
+
+But the next morning, eight lines were finished ! "Maria, didn't we stop in this spot here?"  Arthur asked.
+
+"Yes that is correct. And the tools were in a different position, too" Maria said. They were surprised and happy. Thay day, they worked hard and finished five lines.
+
+But in this morning, ten lines were dont ! Each day they did a lot of work. Each night, someone else did an equal amount of work. In a week, the whole field was finished "Tomorrow I will sell the crops and pay the lord" Arthur said. But that morning, the crops were gone. A bag was in the middle of the field. It contained money.
+
+"Maria, let's see who has helped us work" Through a hole in the wall, they saw a funny sight. The cats were dancing in the field and earing corn! Now Arthur knew that hap happended. The cats had worked at night! After that, Arthur was very nice to his cats and fed them lots of corn
