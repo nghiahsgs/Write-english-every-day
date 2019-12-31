@@ -47,10 +47,5 @@ Slowly he learned to be happy on the island. He swarm every day. He had trouble 
 
 Finally, people on a ship saw Simon on the island. They wanted to take him home. But Simon was happy. He gave them a long speech about life. He said he wanted to stay. He liked his new, simple life more than his old life.
 
-===================
-Unit 20: The Seven Cities of Gold
 
-Many years ago, a Spanish officer named Coronado heard the story of seven great cities. "The walls of these cities are mde of gold" his friends told him "The people eat meat from golden plates and fress in nice clothes" they said. They called these cities the Seven Cities of Gold. Were the cities real? Coronado never considered asking his friends.
-
-Coranado thought to himself, "The things in these cities must be worth a lot of money" So he went to find the Seven Cities of Gold. He took along three hundred men, many horses, and extra food. The headed west. Coronado wanted to achieve his goal very badly.
 
