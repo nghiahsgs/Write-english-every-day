@@ -31,8 +31,3 @@ Jack came back with food. Tom couldn't remember which passage led home. He neede
 
 In town, people saw Jack with the food and cheered. They called Jack a hero. But Jack didn't care. HE was thinking of something else. He said to Tim "I thought I was smart, but I learned a new term today: friendship"
 
-=============
-Unit 25: JOE's POND
-Jode made the world a better place. He got the idea to do that at school. He watched a video there. It was about a factory. This factory produced a lot of trash and put it in a river. The trash and water were a bad mix. People populated the area by the river and drank its water. This made them sick. Many of them needed medicine and made regular visits to doctors.
-
-But the video wasn't all bad news. It showed ways to pick up track and why it's important to do this. It said people can make a difference to their environment. The video's important features made Joe associate trash with hurting people.
